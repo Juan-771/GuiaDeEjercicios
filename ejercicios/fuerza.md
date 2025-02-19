@@ -12,4 +12,8 @@ Los ejercicios de fuerza mejoran la masa muscular, aumentan la densidad ósea, f
 5. **Descanso:** Toma descansos de 30-90 segundos entre series.
 6. **Series y repeticiones:** Realiza 3-4 series de 8-12 repeticiones.
 7. **Enfriamiento:** Estira al final para relajar los músculos. 
+## Consejos
+1. **Prioriza la técnica** → Usa buena postura antes de aumentar el peso para evitar lesiones.  
 
+2. **Aumenta el peso progresivamente** → Sube cargas poco a poco para ganar fuerza sin estancarte. 💪
+0
