@@ -16,3 +16,10 @@ Los ejercicios de estiramiento mejoran la flexibilidad, previenen lesiones y fav
 4. **Respira profundamente** y relájate.  
 5. **Estira ambos lados** del cuerpo por igual.  
 6. **No fuerces el límite**, siente tensión, no dolor.
+## Consejos
+- Calienta antes de estirar.  
+- Mantén cada estiramiento sin rebotes.  
+- Respira profundo y relájate.  
+- No fuerces el movimiento, evita el dolor.  
+- Sé constante para ver progresos.  
+- Estira después del ejercicio para mejor recuperación.
