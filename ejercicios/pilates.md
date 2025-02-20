@@ -10,4 +10,7 @@ Los ejercicios de Pilates fortalecen el core, mejoran la postura y aumentan la f
 1.Comienza con un calentamiento suave y respiraciones profundas.
 2.Realiza ejercicios básicos como The Hundred, Roll-Up y Bridge durante 30-45 minutos.
 3.Finaliza con estiramientos para relajar los músculos.
-
+## Consejos
+-Controla la respiración en cada movimiento.
+-Mantén una buena alineación corporal.
+-No fuerces los ejercicios, avanza progresivamente.
