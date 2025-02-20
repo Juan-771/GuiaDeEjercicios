@@ -17,7 +17,20 @@ El yoga combina posturas, respiración y meditación para mejorar la flexibilida
 1️⃣ **Elige un espacio tranquilo** 🏡: Busca un lugar cómodo y sin distracciones.  
 
 2️⃣ **Usa ropa cómoda** 👕: Permite libertad de movimiento.  
+## Consejos
+### 🌿 **Consejos para hacer yoga correctamente**  
 
+1️⃣ **Respira profundamente** 🌬️: La respiración es clave para la concentración y relajación.  
+
+2️⃣ **No te fuerces** ⚖️: Avanza poco a poco sin exceder tus límites.  
+
+3️⃣ **Mantén una buena alineación** 🧍‍♂️: La postura correcta evita lesiones y mejora los beneficios.  
+
+4️⃣ **Practica con constancia** 🔄: La clave del progreso es la regularidad.  
+
+5️⃣ **Relájate y disfruta** 😌: El yoga es un equilibrio entre cuerpo y mente, no una competencia.  
+
+¡Fluye con cada movimiento y disfruta el momento! 🧘✨
 3️⃣ **Empieza con respiración consciente** 🌬️: Inhala y exhala profundamente para relajarte.  
 
 4️⃣ **Realiza posturas básicas** 🧎: Mantén cada postura (asana) entre 15-60 segundos.  
