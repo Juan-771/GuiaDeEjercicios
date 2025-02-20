@@ -6,4 +6,8 @@ Los ejercicios de Pilates fortalecen el core, mejoran la postura y aumentan la f
 -Mejora la estabilidad y el equilibrio.
 -Fortalece el abdomen y la espalda.
 -Aumenta la flexibilidad y la movilidad.
+## Instrucciones
+1.Comienza con un calentamiento suave y respiraciones profundas.
+2.Realiza ejercicios básicos como The Hundred, Roll-Up y Bridge durante 30-45 minutos.
+3.Finaliza con estiramientos para relajar los músculos.
 
