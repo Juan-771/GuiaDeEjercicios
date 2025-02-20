@@ -10,4 +10,8 @@ El boxeo es un entrenamiento de alta intensidad que combina fuerza, resistencia 
 1.Comienza con un calentamiento de 5-10 minutos (saltar la cuerda, movilidad articular).
 2.Practica combinaciones de golpes (jab, cross, uppercut, hook) y ejercicios de defensa.
 3.Realiza rounds de 2-3 minutos con pausas cortas y finaliza con estiramientos.
+## Consejos
+-Mantén una postura firme y manos en guardia.
+-Controla la respiración en cada golpe.
+-Usa vendajes y guantes adecuados para proteger tus manos.
 
