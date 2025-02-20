@@ -12,3 +12,9 @@ Los ejercicios de entrenamiento funcional ofrecen varios beneficios, entre ellos
 5. **Mejor rendimiento en actividades cotidianas**: Facilitan la realización de tareas diarias, como levantar objetos, subir escaleras o agacharse.
 6. **Incremento de la resistencia cardiovascular**: Algunos ejercicios funcionales también mejoran la capacidad cardiovascular.
 7. **Entrenamiento de todo el cuerpo**: Combina ejercicios que trabajan múltiples músculos al mismo tiempo, optimizando el tiempo de entrenamiento.
+## Instrucciones
+1. **Mantén una postura correcta**: Asegúrate de alinear bien tu cuerpo durante todos los movimientos para evitar lesiones.
+
+2. **Controla el movimiento**: Realiza cada ejercicio de forma lenta y controlada, activando el core para mayor estabilidad.
+
+3. **Progresión gradual**: Comienza con ejercicios simples y aumenta la dificultad conforme tu fuerza y resistencia mejoren.
