@@ -10,4 +10,7 @@ El ciclismo es un ejercicio cardiovascular de bajo impacto que mejora la resiste
 1.Comienza con un calentamiento de 5-10 minutos a baja intensidad.
 2.Pedalea a un ritmo constante durante 30-60 minutos, según tu nivel.
 3.Finaliza con un enfriamiento y estiramientos para evitar rigidez muscular.
-
+## Consejos
+-Ajusta la bicicleta a tu altura para mayor comodidad.
+-Mantén una hidratación adecuada.
+-Usa casco y equipo adecuado para mayor seguridad.
