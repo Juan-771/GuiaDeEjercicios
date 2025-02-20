@@ -18,3 +18,9 @@ Los ejercicios de entrenamiento funcional ofrecen varios beneficios, entre ellos
 2. **Controla el movimiento**: Realiza cada ejercicio de forma lenta y controlada, activando el core para mayor estabilidad.
 
 3. **Progresión gradual**: Comienza con ejercicios simples y aumenta la dificultad conforme tu fuerza y resistencia mejoren.
+## Consejos
+1️⃣ **Prioriza la técnica** antes de aumentar peso o velocidad.  
+
+2️⃣ **Activa el core** en todos los movimientos para estabilidad.  
+
+3️⃣ **Varía los ejercicios** y progresa gradualmente para mejores resultados. 💪🔥
