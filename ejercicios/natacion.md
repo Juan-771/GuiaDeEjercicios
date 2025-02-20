@@ -11,3 +11,7 @@ La natación es un ejercicio completo que mejora la resistencia, fortalece los m
 1.Comienza con un calentamiento de 5-10 minutos con estiramientos y movimientos en el agua.
 2.Nada durante 30-45 minutos alternando estilos como crol, espalda y braza.
 3.Finaliza con un enfriamiento y estiramientos suaves fuera del agua.
+## Consejos
+-Mantén una respiración rítmica y controlada.
+-Usa gafas y gorro para mayor comodidad.
+-Hidrátate bien, incluso si no sientes sed.
